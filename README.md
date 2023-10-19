@@ -1,2 +1,2 @@
 # browsandlashesstudio.co.uk
-final
+copyright. Allright Reserved
